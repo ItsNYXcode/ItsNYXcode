@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ItsNYXcode
+- 👀 I’m interested for the hidden, the depth, the facts and the truth.
+- 🌱 I’m currently learning as much as books allow me, and as widely as the information that comes into my hands.
+- 💞️ I’m looking to collaborate on challenging, creative, and authentic people.
+- 📫 How to reach me ... You just don't come, I look for you.
+- 😄 Pronouns: Nyx, like the Greek goddess of the night.
+- ⚡ Fun fact: I am fragmented into several personalities.
